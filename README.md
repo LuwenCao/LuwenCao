@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on start-ups based on research results.
 - 📫 How to reach me ---here at GitHub
 - 😄 Pronouns: her
-- ⚡ Fun fact: a crazy nice-fruits lover
+- ⚡ Fun fact: Avid lover of delicious fruits
 
 <!---
 LuwenCao/LuwenCao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
